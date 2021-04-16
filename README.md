@@ -3,12 +3,6 @@
 
 I live in the city addis ababa in Ethiopia.
 
-### Reading
-
- Three of my favorite people are:
-  -*Nuguse* from addis
-  -*Musie*  from Asmara
-  -*Genet*  from Canada
 ### Food
  Last night I dreamt about eating in these restaurants:
   1.WOW BURGER in Bole
